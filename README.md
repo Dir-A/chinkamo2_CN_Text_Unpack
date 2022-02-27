@@ -1,4 +1,4 @@
-# chinkamo2_CN_RAW
+# chinkamo2_CN_Text_Unpack
 # 某恶心人，再他妈乱搞，全放流
 # 等着JC取证，全给过去
 # 此汉化组的所有人，如果你们继续这某恶心人合作
